@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning qualquer coisa
 - 👯 I’m looking to collaborate on a minha carreira
 - 🤔 I’m looking for help with
-- 💬 Ask me about 
+- 💬 Ask me about HSMTMTS
 - 📫 How to reach me: mariaeduardawdesc@gmail.com
 - 😄 Pronouns: ela/dela
 - ⚡ Fun fact: 
