@@ -11,7 +11,7 @@
 - faço alguns desenhos digitais e alguns sketchs;
 - toco violão e ukulele;
 
-![](ratinho.jpg)
+![acho que era isso que tinha a dizer por agora ;)](ratinho.jpg)
 
 *modificação na nova branch*
 
