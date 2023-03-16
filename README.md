@@ -1,6 +1,6 @@
 # **oi, meu nome é Maria Eduarda e este é meu repositório!**
 
-## *la vão algumas curiosidades sobre mim:*
+## *me conheça melhor:*
 
 1. técnica em informática para internet, formada pelo CTISM/UFSM;
 2. cursando o primeiro semestre de engenharia de telecomunicações na UFSM;
