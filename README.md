@@ -12,7 +12,7 @@
 - swiftie e lober;
 - python é vida <3;
 
-![ratinho](ratinho.jpg)
+![jao](jaocorno.jpg)
 
-*modificação na nova branch*
+
 
